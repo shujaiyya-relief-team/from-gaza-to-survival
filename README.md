@@ -7,7 +7,8 @@
 
 ### About Us
 
-My name is Saif Aziz, a father of three from Gaza City, one of these 3 families.
+
+My name is Saif Aziz, a father of three from Gaza City. This project supports 3 families (12 people total) displaced from Al-Shujaiya after our homes were destroyed. We live in tents and share everything as one community kitchen
 
 Since October 2023, We have been forcibly displaced more than 30 times. Our homes in Al-Shujaiya were destroyed, and we now live in makeshift tents - 3 displaced families from the same neighborhood (12 people: my family of 5, a neighbor family of 4, and a neighbor family of 3, including 5 children).
 
